@@ -1,5 +1,5 @@
 
-Ont particpité au projet
+Ont participité au projet
 Mustapha Ait OuaYhou
 Rafik Derouiche
 Thomas Perus
